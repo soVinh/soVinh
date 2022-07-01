@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @soVinh
+- 👋 Hi
 - 👀 I’m interested in ...ooooooo
 - 🌱 I’m currently learning ...oooooooooo
 - 💞️ I’m looking to collaborate on ...oooooooo
